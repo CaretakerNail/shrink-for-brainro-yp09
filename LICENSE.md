@@ -1,4 +1,4 @@
-
+stealth shrink for brainrots Script is the best shrink for brainrots Script, featuring no cooldown and unlimited stamina. Safe and powerful for all
 
 
 
